@@ -18,4 +18,4 @@ Sweater weather!!
 
 ###Given the choice of anyone in the world, whom would you want as a dinner guest?
 
-Your answer goes here
+Hitler- he's both terrifying and fascinating.
