@@ -6,7 +6,7 @@ Sarah
 
 ###What is your favorite color?
 
-Your answer goes here
+Teal
 
 ###Cats or Dogs?
 
